@@ -36,7 +36,7 @@ ChatGPT API · Python · LangChain · Notion API · Zapier · Make
 
 ### 🤝 Bora se conectar?
 
-[LinkedIn]([https://www.linkedin.com/in/kaueveiga](https://www.linkedin.com/in/kauê-veiga-10ba6614a/)) · [Instagram](https://www.instagram.com/kaue_veiga?igsh=MTdqdDk5aHNpNXBmcA%3D%3D&utm_source=qr)
+[LinkedIn](https://www.linkedin.com/in/kauê-veiga-10ba6614a/) · [Instagram](https://www.instagram.com/kaue_veiga?igsh=MTdqdDk5aHNpNXBmcA%3D%3D&utm_source=qr)
 
 ---
 
